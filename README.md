@@ -1,1 +1,1 @@
-# SHS
+About Us | Smart Home Solutions
